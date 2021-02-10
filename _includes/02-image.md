@@ -1,1 +1,1 @@
-![One random picture, Mike Piazza broke his bat on this](https://www.flickr.com/photos/21983356@N00/231487081)
+[One random picture, Mike Piazza broke his bat on this](https://www.flickr.com/photos/21983356@N00/231487081)
